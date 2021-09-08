@@ -1,11 +1,11 @@
-...   ...  @@-1,10 +1,10 @@:
-  1  1     + ...  ...  @@-1,4 +1,6 @@:
+...   ...  @@-1,11 +1,11 @@:
+  1        + ...  @@-1,11 +1,11 @@:
   2        +
-  3
-  4
-# 5 config.pyhthon.yml.net:Version.5.1.x.0:
-*.python.config_api_orbis.yml.Signal.streangth.5.0:
-*.aar
+  3        + 
+  4        +
+  # 5 config.pyhthon.yml.net:Version.5.1.x.0:
+  6 *.python.config_api_orbis.yml.Signal.streangth.5.0:
+  7 *.
 *.ap_
 *.aab
 
