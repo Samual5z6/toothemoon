@@ -1,1 +1,5 @@
-# toothemoon
+stray.kitten 
+
+You will get the same priority service with us no matter your kink. Every membership has the same full access features without charging you a hidden fee to see profiles or content allowing you unlimited messages with your newest friends or just a  stranger with no name.
+
+No matter how you live your personal life, from a lasting relationships to the rush of late night kinky fuckery! We want you to feel safe and  excited or scared and obedient. don't be afraid to express your fetishies with us. We'll help you make a connection so you don't have to decide in the bedroom or control it where ever you get used or find lasting relationships depending on what you discover about yourself. Our services for online dating that we provide will stay at our monthly membership of $10.99. no limitation on user profiles with interaction via text video or picture content. Other features will be coming soon such as live interactive  kinky cam models. Select Trip packages depending on location for that spur of the moment mood. Different rates apply for trip Package that will add to a unique way of  finding some adventure. Employment opportunities will be posted on our careers pag.
